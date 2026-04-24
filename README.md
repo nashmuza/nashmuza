@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nashmuza
 - 👀 I’m interested in fine art and  good music 
-- 🌱 I’m currently learning data analytics
+- 🌱 I’m completed my data analytics  certificate
 - 💞️ I’m looking to collaborate on any project that can teach me and grow my career
 - 📫 How to reach me email me at muzanash01@gmail.com
 - 😄 Pronouns: he/him
